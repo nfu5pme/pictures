@@ -25,8 +25,9 @@
 
 [110-A_新生家長座談會_20210905](https://photos.app.goo.gl/znxgYmr8oeKNqBwL9)
 
-[110-A_新生週_20210906](https://photos.app.goo.gl/VHyVPTYxDqRpztzQ9)  (陸續更新)
+[110-A_新生週_20210906](https://photos.app.goo.gl/VHyVPTYxDqRpztzQ9)https://photos.app.goo.gl/barGxah9TLztXqWb8
 
+[110-A_團體照](https://photos.app.goo.gl/barGxah9TLztXqWb8)
 
 ## 照片來源：
 精密機械工程科科學會及亂七八糟的來源提供
