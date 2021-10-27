@@ -29,6 +29,8 @@
 
 [110-A_團體照](https://photos.app.goo.gl/barGxah9TLztXqWb8)
 
+[110-A_北科交流](https://photos.app.goo.gl/ip2twELAJPi3iE21A)
+
 ## 照片來源：
 精密機械工程科科學會及亂七八糟的來源提供
 
